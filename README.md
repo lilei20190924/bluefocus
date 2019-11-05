@@ -1,4 +1,4 @@
 # bluefocus
 
-![sssss](https://raw.githubusercontent.com/lilei20190924/bluefocus/master/prophet3.jpg)
+![image cat](https://github.com/lilei20190924/bluefocus/blob/master/2.jpg)
 
